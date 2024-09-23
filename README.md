@@ -1,4 +1,4 @@
 # kaju
 kaju is only mine
 she is cute and lovely
-she is patlu
+it is very bhukkad
